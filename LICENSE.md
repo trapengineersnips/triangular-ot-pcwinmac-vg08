@@ -1,4 +1,4 @@
-# 
+# Gratuito triangular arbitrage bot complementos para Mac OS | Código aberto triangular arbitrage bot complementos para PC Windows. Com gerenciamento de riscos e feeds em tempo real — otimizado para máximo desempenho em cada plataforma.
 
 
 
